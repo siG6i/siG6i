@@ -1,16 +1,16 @@
-## Hi there 👋
-
-<!--
-**siG6i/siG6i** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# <p align="center">-`*info*´-</p>
+<p align="center">★ ⁺. arceneaux (or arcey for short) | 22 | androgyne/boygirl (he/she prns ok) | INTP .⁺ ★</p>
+<p align="center">⋆｡‧˚ hypersomniac ᶻ 𝗓 𐰁 .ᐟ, psych student + researcher, music producer, artist, professional hater ˚‧｡⋆</p>
+<p align="center">· · ─ ·✶· ─ · ·</p>
+<p align="center">-` 𝗳𝗼𝗿 𝗣𝗧 ´-</p> 
+<p align="center">★ ⁺. 𝗖+𝗛 𝗼𝗸! i dont frequently intiate conversations bc of social anxiety, but im always open to chatting. feel free to say hi :) .⁺ ★</p>
+<p align="center">⤹ 𝗕𝗬𝗜: no tonetags, "offensive" humor, slur reclaimer, anti harassment, turbo autism, not interested in discourse ⤸</p>
+<p align="center">⤹ 𝗗𝗡𝗜: -18, puritans, acnh/mgs skins + 𝗜𝗪𝗖: systems/self dx - im gonna know if ur faking lol ⤸
+<p align="center">· · ─ ·✶· ─ · ·</p>
+<p align="center">-` 𝘀𝗵𝗶𝘁 𝗶 𝗹𝗶𝗸𝗲 (𝗽𝗹𝘀 𝘁𝗮𝗹𝗸 𝘁𝗼 𝗺𝗲 𝗮𝗯𝗼𝘂𝘁 𝘁𝗵𝗲𝘀𝗲) ´-</p> 
+<p align="center">𝗧𝗩/𝗙𝗜𝗟𝗠. ݁₊ ⊹ . 📽.ᐟ - JJBA, chobits, squid game, "male manipulator" movies, forensic files, documentaries, psychological horror</p>
+<p align="center">𝗠𝗨𝗦𝗜𝗖. ♫⋆｡♪ ₊˚♬ ﾟ. - suicideboys/G*59, 1c34, underground rap, yacht rock, vaporwave/vaportrap, nu metal/industrial, trap, 70s/80s/00s, vocaloid</p>
+<p align="center">𝗚𝗔𝗠𝗘𝗦. 🎮࿐ ࿔*:･ﾟ - overwatch, COD, faith: the unholy trinity, TF2, resident evil, fortnite</p>
+<p align="center">𝗢𝗧𝗛𝗘𝗥. ⋆༺𓆩☠︎︎𓆪༻⋆ - fashion, music production, art, homestuck, EAS/sirens, psychology, OCs, creative writing, sharks</p>
+<p align="center">· · ─ ·✶· ─ · ·</p>
+<p align="center"> thats all i can think of for rn... will update as i think of things. kthx <3 </p>
