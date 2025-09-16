@@ -10,7 +10,7 @@
 <p align="center">-` 𝘀𝗵𝗶𝘁 𝗶 𝗹𝗶𝗸𝗲 (𝗽𝗹𝘀 𝘁𝗮𝗹𝗸 𝘁𝗼 𝗺𝗲 𝗮𝗯𝗼𝘂𝘁 𝘁𝗵𝗲𝘀𝗲) ´-</p> 
 <p align="center">𝗧𝗩/𝗙𝗜𝗟𝗠. ݁₊ ⊹ . 📽.ᐟ - JJBA, chobits, naruto, squid game, "male manipulator" movies, forensic files, documentaries, psychological horror</p>
 <p align="center">𝗠𝗨𝗦𝗜𝗖. ♫⋆｡♪ ₊˚♬ ﾟ. - suicideboys/G*59, 1c34, underground rap, yacht rock, vaporwave/vaportrap, nu metal/industrial, trap, 70s/80s/00s, vocaloid</p>
-<p align="center">𝗚𝗔𝗠𝗘𝗦. 🎮࿐ ࿔*:･ﾟ - overwatch, COD, faith: the unholy trinity, imscared, TF2, resident evil, fortnite</p>
+<p align="center">𝗚𝗔𝗠𝗘𝗦. 🎮࿐ ࿔*:･ﾟ - overwatch, COD, faith: the unholy trinity, imscared, TF2, resident evil, fortnite, yume nikki</p>
 <p align="center">𝗢𝗧𝗛𝗘𝗥. ⋆༺𓆩☠︎︎𓆪༻⋆ - fashion, music production, art, homestuck, EAS/sirens, psychology, OCs, creative writing, sharks</p>
 <p align="center">· · ─ ·✶· ─ · ·</p>
 <p align="center"> thats all i can think of for rn... will update as i think of things. kthx <3 </p>
