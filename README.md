@@ -8,7 +8,7 @@
 <p align="center">⤹ 𝗗𝗡𝗜: -18, puritans, acnh/mgs skins (i automatically hide these if i see them) + 𝗜𝗪𝗖: systems/self dx ⤸
 <p align="center">· · ─ ·✶· ─ · ·</p>
 <p align="center">-` 𝘀𝗵𝗶𝘁 𝗶 𝗹𝗶𝗸𝗲 (𝗽𝗹𝘀 𝘁𝗮𝗹𝗸 𝘁𝗼 𝗺𝗲 𝗮𝗯𝗼𝘂𝘁 𝘁𝗵𝗲𝘀𝗲) ´-</p> 
-<p align="center">𝗧𝗩/𝗙𝗜𝗟𝗠. ݁₊ ⊹ . 📽.ᐟ - JJBA, chobits, naruto, squid game, "male manipulator" movies, tron (82/legacy/ares/uprising), forensic files, documentaries, psychological horror</p>
+<p align="center">𝗧𝗩/𝗙𝗜𝗟𝗠. ݁₊ ⊹ . 📽.ᐟ - JJBA, chobits, naruto, squid game, house md, "male manipulator" movies, tron (82/legacy/ares/uprising), forensic files, documentaries, psychological horror</p>
 <p align="center">𝗠𝗨𝗦𝗜𝗖. ♫⋆｡♪ ₊˚♬ ﾟ. - suicideboys/G*59, underground rap, yacht rock, bootybass/ghettotech/miami bass, edm/house, vaporwave/vaportrap, nu metal/industrial, trap, 70s/80s/00s, vocaloid</p>
 <p align="center">𝗚𝗔𝗠𝗘𝗦. 🎮࿐ ࿔*:･ﾟ - overwatch, COD, faith: the unholy trinity, imscared, TF2, resident evil, fortnite, yume nikki, ddlc</p>
 <p align="center">𝗢𝗧𝗛𝗘𝗥. ⋆༺𓆩☠︎︎𓆪༻⋆ - uranium glass, fashion, music production, art, homestuck, EAS/sirens, psychology, OCs, creative writing, sharks</p>
