@@ -11,6 +11,6 @@
 <p align="center">𝗧𝗩/𝗙𝗜𝗟𝗠. ݁₊ ⊹ . 📽.ᐟ - JJBA, chobits, naruto, squid game, dexter, house md, "male manipulator" movies, tron (82/legacy/ares/uprising), forensic files, documentaries, psychological horror</p>
 <p align="center">𝗠𝗨𝗦𝗜𝗖. ♫⋆｡♪ ₊˚♬ ﾟ. - suicideboys/G*59, underground rap, yacht rock, bootybass/ghettotech/miami bass, edm/house, vaporwave/vaportrap, nu metal/industrial, trap, 70s/80s/00s, vocaloid</p>
 <p align="center">𝗚𝗔𝗠𝗘𝗦. 🎮࿐ ࿔*:･ﾟ - overwatch, COD, faith: the unholy trinity, imscared, TF2, resident evil, fortnite, yume nikki, ddlc</p>
-<p align="center">𝗢𝗧𝗛𝗘𝗥. ⋆༺𓆩☠︎︎𓆪༻⋆ - uranium glass, fashion, music production, art, homestuck, EAS/sirens, psychology, OCs, creative writing, sharks</p>
+<p align="center">𝗢𝗧𝗛𝗘𝗥. ⋆༺𓆩☠︎︎𓆪༻⋆ - SCP, uranium glass, fashion, music production, art, homestuck, EAS/sirens, psychology, OCs, creative writing, sharks</p>
 <p align="center">· · ─ ·✶· ─ · ·</p>
 <p align="center"> thats all i can think of for rn... will update as i think of things. kthx <3 </p>
