@@ -5,7 +5,7 @@
 <p align="center">-` 𝗳𝗼𝗿 𝗣𝗧 ´-</p> 
 <p align="center">★ ⁺. 𝗖+𝗛 𝗼𝗸! i dont frequently intiate conversations bc of social anxiety, but im always open to chatting. feel free to say hi :) .⁺ ★</p>
 <p align="center">⤹ 𝗕𝗬𝗜: no tonetags, "offensive" humor, slur reclaimer, anti harassment, turbo autism, not interested in discourse ⤸</p>
-<p align="center">⤹ 𝗗𝗡𝗜: -18, puritans/moralists , acnh/mgs skins (i automatically hide these if i see them) + 𝗜𝗪𝗖: systems/self dx ⤸
+<p align="center">⤹ 𝗗𝗡𝗜: -18, puritans/moralists, acnh/mgs skins (i automatically hide these if i see them) + 𝗜𝗪𝗖: systems/self dx ⤸
 <p align="center">· · ─ ·✶· ─ · ·</p>
 <p align="center">-` 𝘀𝗵𝗶𝘁 𝗶 𝗹𝗶𝗸𝗲 (𝗽𝗹𝘀 𝘁𝗮𝗹𝗸 𝘁𝗼 𝗺𝗲 𝗮𝗯𝗼𝘂𝘁 𝘁𝗵𝗲𝘀𝗲) ´-</p> 
 <p align="center">𝗧𝗩/𝗙𝗜𝗟𝗠. ݁₊ ⊹ . 📽.ᐟ - JJBA, chobits, naruto, dexter, stranger things, house md, "male manipulator" movies, tron (82/legacy/ares/uprising), the matrix, forensic files, documentaries, psychological horror</p>
