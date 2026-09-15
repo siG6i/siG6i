@@ -1,6 +1,6 @@
 # <p align="center">-`*info*´-</p>
 <p align="center">★ ⁺. arceneaux (or arcey for short) | 23 | androgyne/boygirl (he/she prns ok) | INTP .⁺ ★</p>
-<p align="center">⋆｡‧˚ hypersomniac ᶻ 𝗓 𐰁 .ᐟ, psych student, music producer, artist, professional hater ˚‧｡⋆</p>
+<p align="center">⋆｡‧˚ hypersomniac ᶻ 𝗓 𐰁 .ᐟ, music producer, artist, professional hater ˚‧｡⋆</p>
 <p align="center">· · ─ ·✶· ─ · ·</p>
 <p align="center">-` 𝗳𝗼𝗿 𝗣𝗧 ´-</p> 
 <p align="center">★ ⁺. 𝗖+𝗛 𝗼𝗸! i dont frequently intiate conversations bc of social anxiety, but im always open to chatting. feel free to say hi :) .⁺ ★</p>
